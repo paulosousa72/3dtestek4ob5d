@@ -1,1 +1,0 @@
-# 3dtestek4ob5d
